@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=raneemrafaii&style=flat-square&color=ff69b4)
+
 ### Hi there! 👋 I'm a 16-year-old Dreamer! ✨
 
 - 🏰 **Location:** Embracing life in the beautiful land of Lebanon 🌟
